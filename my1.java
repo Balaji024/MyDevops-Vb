@@ -1,2 +1,0 @@
-hv
-arti pal
